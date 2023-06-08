@@ -12,6 +12,7 @@
 
 🏡 'I live in Barranquilla/Colombia
 ⚡ Fun facts: 🍕 🏉 🏏 🎥 🚞
+(https://img.icons8.com/fluency/48/000000/apple-mail.png "@anushkaduwolka123@gmail.com")](anushkaduwolka123@gmail.com)
 
 <br>
 
